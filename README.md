@@ -1,2 +1,2 @@
-# chashchina-ks.github.io
+# chashchina-ks
 
